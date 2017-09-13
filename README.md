@@ -1,7 +1,5 @@
-# freelancer-negotiations
+# Verhandlungspunkte 
 
-Some negotiations points that have to be consider by freelancers when they negotiate with head hunters.
+# Reisen
 
-# Travel
-
-* If you have to travel in another city and travel with the train, you can negotiate if you can work in that time and get payed for it.
+* Wenn man ein Projekt bekommt bei dem man mit der Bahn reist dann kann man verhandeln ob man remote im Zug am Projekt arbeiten kann.
