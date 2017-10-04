@@ -15,6 +15,10 @@ Um unseriöse Vermittler sind diese die verlange das man ein paar Tage oder gar 
 
 Andere unseriöse Vermittler verlangen das man auf die Entscheidung von Ihren Kunden wartet und sich während dessen "freihält" was so viel heisst das man in dieser Zeit keine anderen Angebote annehmen darf.
 
+Unseriöse emails
+
+Es gibt unseriöse Vermittler die eine Email verfassen die sehr freundlich ist das Stellenangebot beschreiben und dann erwarten das man sich auf das Angebot noch bewirbt. Das nenne ich reverse-engineering. Die brauchen dich und du sollt dich an Sie bewerben. Wenn Sie dich brauchen können Sie dich zumindest anrufen.
+
 
 Das in soweit unseriös weil man erstens dafür nicht bezahlt wird und während dessen kann ein besseres Angebot herein kommen bei dem man leider absagen muss. Mann kann das mit ein Taxi vergleichen das warten soll ohne das Taxometer laufen soll. Da würde der Taxifahrer Trinkgeld verlangen und zwar ein sehr großes.
 
